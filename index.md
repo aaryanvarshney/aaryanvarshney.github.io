@@ -1,4 +1,4 @@
-# Aaryan Varshney
+# List of Achievements
 
 I am Fide Master Aaryan Varshney. I am National (under- 13) Champion- 2018 and IIFL Mumbai Junior Champion-2018. I have four IM Norms, One in Goa International GM Tournament- 2019, second in World Junior Chess Championship, Delhi- 2019, third in Chattisgarh International GM tournament - 2022, and fourth in Asian Contintental Chess Championship - 2022. 
 
