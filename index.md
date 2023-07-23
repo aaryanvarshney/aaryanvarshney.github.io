@@ -18,8 +18,8 @@ I am Fide Master Aaryan Varshney. I am National (under- 13) Champion- 2018 and I
 4. Online National under 2021 16 Rank 2 - [certificate](https://drive.google.com/file/d/1M3cKTPH8sWrdcRi7i321jgphF11xvQrI/view?usp=drive_link)
 
    ## State and School Level Achivements
-1.  Delhi State Chess Champianship 2022 Rank 1
-2. CBSE National Chess Champianship 2022-23 Rank 2
+1. Delhi State Chess Champianship 2022 Rank 1 - [certificate](https://drive.google.com/file/d/1oP51zTcsWelR-M-P7FfgsZ61Mcd76ZpB/view?usp=sharing)
+2. CBSE National Chess Champianship 2022-23 Rank 2 - [certificate](https://drive.google.com/file/d/1eh4KO7mEIsO0DtqEM9Fb2F3NOoQHGcfk/view?usp=sharing)
 ## Contact
 
 1. Email: <aaryan2900@gmail.com>
