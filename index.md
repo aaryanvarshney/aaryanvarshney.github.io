@@ -2,6 +2,16 @@
 
 I am Fide Master Aaryan Varshney. I am National (under- 13) Champion- 2018 and IIFL Mumbai Junior Champion-2018. I have four IM Norms, One in Goa International GM Tournament- 2019, second in World Junior Chess Championship, Delhi- 2019, third in Chattisgarh International GM tournament - 2022, and fourth in Asian Contintental Chess Championship - 2022. 
 
+## IM Norms
+1. First IM norm [certificate](https://drive.google.com/file/d/10F9GTsDmUPyi1_XZekCAzN6MEXd0iVRS/view?usp=sharing)
+2. Second IM norm [certificate](https://drive.google.com/file/d/1jlKyemQ1L_1UBqdXQ_pkv43MKodyPlZ8/view?usp=sharing)
+3. Third IM norm [certificate](https://drive.google.com/file/d/1QSiAHqlplD8Qw8Hj1UiNPXThxI-jL-Ho/view?usp=sharing)
+4. Fourth IM norm [certificate](https://drive.google.com/file/d/16lysu1LcizFQ8KdepiwDqVG4aJKQbSEs/view?usp=sharing)
+
+
+
+
+
 ## International Achievement 
 1. Fide World Junior Chess Championship - 2019 rank 56 - [certificate](https://drive.google.com/file/d/1tse_49jOB3yR4BotGG6UvnQvmmdWMoU_/view?usp=sharing)
 2. World youth Chess Championship - 2019 rank 23 - [certificate](https://drive.google.com/file/d/1CsVUHbnC0WrDC__6UFhZFjbvVA5cu5sL/view?usp=drive_link)
