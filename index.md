@@ -2,6 +2,12 @@
 
 I am Internation Master Aaryan Varshney. I am National (under- 13) Champion- 2018 and IIFL Mumbai Junior Champion-2018. 
 
+## GM Norms
+
+1. First GM norm [certificate](https://drive.google.com/file/d/10F9GTsDmUPyi1_XZekCAzN6MEXd0iVRS/view?usp=sharing)
+2. Second GM norm [certificate](https://drive.google.com/file/d/1jlKyemQ1L_1UBqdXQ_pkv43MKodyPlZ8/view?usp=sharing)
+3. Third GM norm [certificate](https://drive.google.com/file/d/1QSiAHqlplD8Qw8Hj1UiNPXThxI-jL-Ho/view?usp=sharing)
+
 ## IM Norms
 
 1. First IM norm [certificate](https://drive.google.com/file/d/10F9GTsDmUPyi1_XZekCAzN6MEXd0iVRS/view?usp=sharing)
